@@ -2,7 +2,7 @@
 #### smol dev, heavy sleeper and cool :3
 
 ### what me?
-- **15**, she/her, 🏳️‍⚧️
+- **15**, any/all (she/her pref.), trans enby :3
 
 ### what do?
 i made a few things, check em out :3c
