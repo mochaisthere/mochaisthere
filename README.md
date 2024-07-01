@@ -1,4 +1,4 @@
-## Haiiiii! im mocha!
+## Haiiiii! im noelle!
 #### smol dev, heavy sleeper and cool :3
 
 ### what me?
